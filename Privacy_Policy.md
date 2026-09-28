@@ -1,4 +1,4 @@
-MoneyMind Privacy Policy
+**MoneyMind Privacy Policy**
 
 Effective Date: 1 September 2026
 
